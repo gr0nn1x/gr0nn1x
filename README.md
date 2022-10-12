@@ -14,10 +14,15 @@
 - 📫 How to reach me **fanyfany888@gmail.com**
 
 - ⚡ Fun fact **I am actually enjoing math, gym and games at the same time**
+  
+  
+  
 ![Snímek obrazovky 2022-10-12 090413](https://user-images.githubusercontent.com/100243642/195272949-e0a22d29-0f0f-4eaa-9bc4-5f507b5ab6f4.png)
 
+  
 <h3 align="left">Connect with me:</h3>
 ig: https://www.instagram.com/mamautismus/
+steam: https://steamcommunity.com/profiles/[U:1:391297716] 
 <p align="left">
 </p>
 
