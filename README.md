@@ -23,6 +23,8 @@
 ig: https://www.instagram.com/mamautismus/
   
 steam: https://steamcommunity.com/profiles/[U:1:391297716] 
+
+discrd (only kittens or chall euw pls): Gr0nn1x#6825
 <p align="left">
 </p>
 
