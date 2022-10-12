@@ -14,6 +14,7 @@
 - 📫 How to reach me **fanyfany888@gmail.com**
 
 - ⚡ Fun fact **I am actually enjoing math, gym and games at the same time**
+- next Fun fact **I have finished Jump king, Elden ring, Dark souls 1,2 and 3**
   
   
   
