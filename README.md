@@ -1,4 +1,4 @@
-<h1 align="center">My name is gr0nn1x</h1>
+<h1 align="center">My name is gr0nn1x but you can call me xXbrutaldarkbladeXx</h1>
 <h3 align="center">I am trying to learn coding, if iam not successful ill lend yours.<3</h3>
 
 - 🔭 I’m currently working on **Java / Javascript low-quality projects**
