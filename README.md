@@ -20,7 +20,8 @@
 
   
 <h3 align="left">Interested in me?</h3>
-`instagram:` https://www.instagram.com/mamautismus/
+  
+instagram: https://www.instagram.com/mamautismus/
   
 `steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
 
