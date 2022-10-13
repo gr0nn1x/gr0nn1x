@@ -1,9 +1,9 @@
 <h1 align="center">My name is gr0nn1x but you can call me xXbrutaldarkbladeXx</h1>
 <h3 align="center">I am trying to learn coding, if iam not successful ill lend yours.<3</h3>
 
-- 🔭 I’m currently working on **Java / Javascript low-quality projects**
+- 🔭 I’m currently working on **`Java` / `Javascript` low-quality projects**
 
-- 🌱 I am in a process of learning: **Java, javascript and some other codes**
+- 🌱 I am in a process of learning: **`Java`, `javascript` and some other `codes`**
 
 - 👯 I’m looking to collaborate on **anything you wish**
 
@@ -12,7 +12,7 @@
 - ❔ What can you ask me about? **My past projects, my in-game ranks, actually anything**
 
 - ⚡ Fun fact **I am actually enjoing math, gym and games at the same time**
-- next Fun fact **I have finished Jump king, Elden ring, Dark souls 1,2 and 3**
+- next Fun fact **I have finished `Jump king`, `Elden ring`, `Dark souls 1,2 and 3`**
   
   
   
