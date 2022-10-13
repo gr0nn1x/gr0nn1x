@@ -24,7 +24,7 @@ ig: https://www.instagram.com/mamautismus/
   
 steam: https://steamcommunity.com/profiles/[U:1:391297716] 
 
-discrd (only kittens or chall euw pls): Gr0nn1x#6825
+discrd (only kittens or chall euw): Gr0nn1x#6825
 <p align="left">
 </p>
 
@@ -38,4 +38,4 @@ discrd (only kittens or chall euw pls): Gr0nn1x#6825
   ![Snímek obrazovky 2022-10-12 091630](https://user-images.githubusercontent.com/100243642/195275322-3103cadd-08d4-47ad-9aee-51c8385b2212.png)
   
   
-  (PLEASE HELP ME I HAVE NETBEANS SYNDROME FROM MY PREVIOUS TEACHER PLEASE I NEED MENTAL HELP)
+  
