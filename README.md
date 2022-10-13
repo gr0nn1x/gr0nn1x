@@ -1,4 +1,4 @@
-<h1 align="center">My name is gr0nn1x but you can call me xXbrutaldarkbladeXx</h1>
+<h1 align="center">My name is gr0nn1x but you can call me `xXbrutaldarkbladeXx`</h1>
 <h3 align="center">I am trying to learn coding, if iam not successful ill lend yours.<3</h3>
 
 - 🔭 I’m currently working on **`Java` / `Javascript` low-quality projects**
@@ -20,11 +20,11 @@
 
   
 <h3 align="left">Connect with me:</h3>
-ig: https://www.instagram.com/mamautismus/
+`ig:` https://www.instagram.com/mamautismus/
   
-steam: https://steamcommunity.com/profiles/[U:1:391297716] 
+`steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
 
-discrd (only kittens or chall euw): Gr0nn1x#6825
+`discrd` (only kittens or chall euw): Gr0nn1x#6825
 <p align="left">
 </p>
 
