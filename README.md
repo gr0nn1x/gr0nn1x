@@ -3,7 +3,7 @@
 
 - (☞ﾟヮﾟ)☞ I’m currently working on **`Java` / `Javascript` low-quality projects**
 
-- ¯\_( ͡° ͜ʖ ͡°)_/¯ I am in a process of learning: **`Java`, `javascript` and some other `codes`**
+- ¯\_( ͡° ͜ʖ ͡°)_/¯ I am in a process of learning: **`Java`, `javascript` and  `🐍`**
 
 - 👯 I’m looking to collaborate on **anything you wish**
 
