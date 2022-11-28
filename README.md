@@ -9,7 +9,8 @@
 
 - ❔ What can you ask me about? **My past projects, my in-game ranks, actually anything**
 
-- ⚡ Fun fact **I am actually enjoing math, gym and games at the same time**
+- 🏋️ **110,165,190, if you know you know**
+  
 - next Fun fact **I have finished `Jump king`, `Elden ring`, `Dark souls 1,2 and 3`**
 
   
