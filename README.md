@@ -1,24 +1,24 @@
-<h1 align="center">My name is gr0nn1x but you can call me xXbrutaldarkbladeXx</h1>
-<h3 align="center">I am trying to learn coding, if iam not successful ill lend yours.<3</h3>
+<h1 align="center">Gr0nn1x</h1>
+<h3 align="center">-----------------------------------------------------------------------------------------------------------------<3</h3>
 
-- (☞ﾟヮﾟ)☞ I’m currently working on **`Java` / `Javascript` low-quality projects**
+- imho **js > java**
 
-- ¯\_( ͡° ͜ʖ ͡°)_/¯ I am in a process of learning: **`Java`, `javascript` and  `🐍`**
+- It is a shame for a man to grow old without seeing the beauty and strength of which his body is capable.
 
-- 👯 I’m looking to collaborate on **anything you wish**
-
-- ❔ What can you ask me about? **My past projects, my in-game ranks, actually anything**
+- ❔  **🍏📱🐶**
 
 - 🏋️ **110,165,190, if you know you know**
-  
-- next Fun fact **I have finished `Jump king`, `Elden ring`, `Dark souls 1,2 and 3`**
+ 
+- **If youre always worried about crushing the ants beneath you, you wont be able to walk**  
+
+- **finished `Jump king`, `Elden ring`, `Ds 3`**
 
   
   
 
 
   
-<h3 align="left">Interested in me?</h3>
+<h3 align="left">dm</h3>
   
 instagram: https://www.instagram.com/mamautismus/
   
