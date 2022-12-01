@@ -8,8 +8,6 @@
 - ❔  **🍏📱🐶**
 
 - 🏋️ **110,165,190, if you know you know**
- 
-- **If youre always worried about crushing the ants beneath you, you wont be able to walk**  
 
 - **finished `Jump king`, `Elden ring`, `Ds 3`**
 
