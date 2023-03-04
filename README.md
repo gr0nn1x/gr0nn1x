@@ -22,7 +22,7 @@ instagram: https://www.instagram.com/mamautismus/
   
 `steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
 
-`discord` (only kittens or chall euw): Gr0nn1x#6825
+`discord` : Gr0nn1x#6825
 <p align="left">
 </p>
 
