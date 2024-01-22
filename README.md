@@ -7,7 +7,7 @@
 
 - ❔  **🍏📱🐶**
 
-- 🏋️ **115,165,190, if you know you know 2022**
+- 🏋️ **200,130,220, if you know you know 2022**
 
 - **finished `Jump king`, `Elden ring`, `Ds 1,2,3`**
 
