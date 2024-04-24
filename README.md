@@ -1,7 +1,7 @@
 <h1 align="center">Gr0nn1x</h1>
 <h3 align="center">Ɛ>----------------------------------------------------------------------------------------------------------------<3</h3>
 
-- at this point i do not even knwo what programing is, cant even connect css to html
+- at this point i do not even knwo what programing is, its so over
 
   
 <h3 align="left">dm</h3>
