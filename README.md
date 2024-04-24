@@ -1,19 +1,7 @@
 <h1 align="center">Gr0nn1x</h1>
 <h3 align="center">Ɛ>----------------------------------------------------------------------------------------------------------------<3</h3>
 
-- imho **js > java**
-
-- It is a shame for a man to grow old without seeing the beauty and strength of which his body is capable.
-
-- ❔  **🍏📱🐶**
-
-- 🏋️ **200,130,220, if you know you know 2022**
-
-- **finished `Jump king`, `Elden ring`, `Ds 1,2,3`**
-
-  
-  
-
+- at this point i do not even knwo what programing is, cant even connect css to html
 
   
 <h3 align="left">dm</h3>
