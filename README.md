@@ -14,7 +14,6 @@ instagram: https://www.instagram.com/mamautismus/
 <p align="left">
 </p>
 
-![Snímek obrazovky 2022-10-12 090932](https://user-images.githubusercontent.com/100243642/195273943-ebf67541-8a12-4dfd-b84a-e0145d3cd5ab.png)
 
 
 <h3 align="left">Languages and Tools:</h3>
