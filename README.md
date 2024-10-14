@@ -6,8 +6,6 @@
   
 <h3 align="left">dm</h3>
   
-instagram: https://www.instagram.com/mamautismus/
-  
 `steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
 
 `discord` : Gr0nn1x#6825
