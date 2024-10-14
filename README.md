@@ -6,9 +6,9 @@
   
 <h3 align="left">dm</h3>
   
-`steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
+`Steam:` https://steamcommunity.com/profiles/[U:1:391297716] 
 
-`discord` : Gr0nn1x#6825
+`Discord` : Gr0nn1x#6825
 <p align="left">
 </p>
 
