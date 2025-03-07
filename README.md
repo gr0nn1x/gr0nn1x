@@ -1,5 +1,8 @@
 <h1 align="center">Gr0nn1x</h1>
 <h3 align="center">Ɛ>----------------------------------------------------------------------------------------------------------------<3</h3>
+
+  <h3> I really like problem and puzzle solving, I am also quite fond of maths</h3>
+
   
 <h3 align="left">dm</h3>
   
