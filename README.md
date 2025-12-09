@@ -2,7 +2,7 @@
 <h3 align="center">Ɛ>----------------------------------------------------------------------------------------------------------------<3</h3>
 
   <h3> I really like problem and puzzle solving, I am also quite fond of math</h3>
-  Nothing will ever convice me that java is better than js for any kind of app, and if you like java more, you are either 50 or bald :3
+  Nothing will ever convice me that java is better than alternatives for any kind of app, and if you like java, you are either 50 or bald :3
 
   
   <h2> My PORTFOLIO -> https://ozenportfolio.vercel.app/ </h2>
