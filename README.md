@@ -5,7 +5,8 @@
   Nothing will ever convice me that java is better than alternatives for any kind of app, and if you like java, you are either 50 or bald :3
 
   
-  <h2> My PORTFOLIO -> https://ozenportfolio.vercel.app/ </h2>
+
+  
 
   
 <h3 align="left">dm</h3>
